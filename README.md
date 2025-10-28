@@ -1,1 +1,1 @@
-# luit-oct-2025-teal-python-larrygibbsjr
+# luit-oct-2025-teal-python
